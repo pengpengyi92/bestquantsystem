@@ -1,0 +1,2 @@
+# bestquantsystem
+some encouragement
